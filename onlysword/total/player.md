@@ -10,3 +10,13 @@ Since 22.09.01
 1승 0패
 ### YSM_0729
 0승 1패
+### Polit
+2승 0패
+### spyjun
+2승 0패
+### Delphineeeeee
+2승 0패
+### _kolds_0
+1승 0패
+### kai_1018
+1승 0패
