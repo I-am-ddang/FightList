@@ -15,6 +15,12 @@ Since 22.09.01
 ### bzrx
 0승 1패
 ### LenkPVP
-0승 3패
+0승 4패
 ### `__L0VE__`
+0승 1패
+### StareAt
+0승 1패
+### kuku_Dragon
+0승 1패
+### steve1238
 0승 1패
