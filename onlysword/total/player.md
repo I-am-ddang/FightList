@@ -66,3 +66,13 @@ Since 22.09.01
 4승 1패
 ### HowBunny
 1승 0패
+### misfire0
+4승 0패
+### HaeWoll
+2승 0패
+### smart_leon
+1승 0패
+### Luolear_177
+1승 0패
+### Eungaemi
+0승 1패
