@@ -1,0 +1,4 @@
+### No.1<br>
+이름: WhiteCloud__
+종목: cpvp <br>
+스코어: 1:0 <br>
